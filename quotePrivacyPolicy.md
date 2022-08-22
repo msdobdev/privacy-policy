@@ -1,4 +1,4 @@
-** Quote Maker - Text On Photo**
+**Quote Maker - Text On Photo**
 
 **Privacy Policy**
 
